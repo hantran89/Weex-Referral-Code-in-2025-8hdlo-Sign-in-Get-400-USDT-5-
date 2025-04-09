@@ -1,2 +1,2 @@
-# Weex-Referral-Code-in-2025-8hdlo-Sign-in-Get-400-USDT-5-
+# Weex Referral Code in 2025: 8hdlo (Sign in Get 400-USDT)
 By using  "8hdlo" during registration, traders can receive up to 30,000 USDT in bonuses and enjoy a 20% discount on trading ...
